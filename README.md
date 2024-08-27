@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Olimon7661! You can call me Oli!
+- 👀 I’m interested in: Making games.
+- 🌱 I’m currently learning: Unity and other stuff.
+- 💞️ I’m looking to collaborate on: Not much right now.
+- 📫 How to reach me: My email is oli.mon7661@gmail.com, you can report bugs on stuff over there.
+- 😄 Pronouns: he/him/his
+- ⚡ Fun facts: I made Five Nights at Creeper's, if you played it and did Custom Night, tell me your highest score! :D
